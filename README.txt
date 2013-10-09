@@ -10,6 +10,6 @@ http://www.thesynapticleap.org
 
 http://openwetware.org/wiki/OSDDMalaria
 
-http://www.twitter/OSDDMalaria
+http://www.twitter.com/O_S_M
 
 https://plus.google.com/u/0/114702323662314783325/posts
